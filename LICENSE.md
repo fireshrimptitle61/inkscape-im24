@@ -1,4 +1,4 @@
-# 
+# ultimate Affinity Photo para PC scripts es el mejor Affinity Photo para PC scripts con capas de ajuste y control de cámara. Seguro, confiable y optimizado para el máximo
 
 
 
